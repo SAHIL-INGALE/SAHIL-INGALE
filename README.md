@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning B.E-IT
 - 💞️ I’m looking to collaborate on GIT-HUB
 - 📫 How to reach me D.M-+917218601216
-- 😄 Pronouns: BUGGY-CHUBBY
+- 😄 Pronouns: Tony
 - ⚡ Fun fact: I AM ALWAYS UNAVAILABLE
 
 <!---
